@@ -1,1 +1,1 @@
-Arifnur.github.io
+Arifnura.github.io
